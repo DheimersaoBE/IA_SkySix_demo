@@ -18,7 +18,7 @@ A versão completa possui:
 - Interface gráfica interativa
 - E muito mais!
 
-Para adquirir a versão completa, visite: [Seu link para venda ou contato]
+Para adquirir a versão completa, visite: WhatsApp 27-997-882-282 - dheimersao@gmail.com
 
 ---
 
