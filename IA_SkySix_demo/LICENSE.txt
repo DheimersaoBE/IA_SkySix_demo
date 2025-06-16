@@ -1,0 +1,7 @@
+Copyright (c) 2025 Dheimersao Brzesky Equer
+
+Todos os direitos reservados.
+
+Este código-fonte é fornecido apenas para fins educacionais e de demonstração.
+
+A reprodução, distribuição ou uso comercial não autorizado deste código é proibido sem permissão expressa do autor.
